@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **egbunachineduvictor@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1xLcaLEm8BpFWVwTyJYbYbrK6RoLcDV5D/view?usp=sharing](https://drive.google.com/file/d/1xLcaLEm8BpFWVwTyJYbYbrK6RoLcDV5D/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1x7LANlPEGkmad6Jd9gY2SLjyzJK5MJyf/view?usp=sharing](https://drive.google.com/file/d/1x7LANlPEGkmad6Jd9gY2SLjyzJK5MJyf/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
